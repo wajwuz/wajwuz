@@ -4,7 +4,7 @@
 
 **📫 Connect with me:**
 
-- Discord: waywooze#1337#4396
+- Discord: waywooze#1337
 - Email: michal@acod.in
 
 
